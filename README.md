@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @noahsentnor
+- 👀 I’m interested in mechanical engineering
+- 🌱 I’m currently studying for my bachelor's degree in mechanical engineering at CU Boulder
+- 📫 How to reach me:
+  - noah.sentnor@gmail.com
+  - 314-941-7846
